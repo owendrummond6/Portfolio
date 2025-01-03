@@ -41,7 +41,7 @@ I would love to connect! Feel free to reach out to me via:
 ####  
 ####  
 
-Thank you for visiting my portfolio! I look forward to hearing from you!
+Thank you very much for visiting my portfolio! I look forward to hearing from you!
 
 ##### - Owen
 
